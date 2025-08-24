@@ -17,7 +17,7 @@
 
 ## 🌊 Fun Fact
 
-I love ~~to~~ the coast.
+I love ~~to coast~~ the coast.
 
 ## 🌐 Connect with Me
 
