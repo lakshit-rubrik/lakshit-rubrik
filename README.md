@@ -12,7 +12,7 @@
 
 ## 🔥 Featured Project
 
-[**Neon**](#)  
+[**Neon**](https://www.youtube.com/watch?v=dQw4w9WgXcQ&list=RDdQw4w9WgXcQ&start_radio=1)  
 *Cutting-edge work that reflects my commitment to innovation and high-quality engineering.*
 
 ## 🌊 Fun Fact
